@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CLAY 
 - 👀 I’m interested in PROGRAMING 
-- 🌱 I’m currently learning BOOKS..
+  
 - 💞️ I’m looking to collaborate on PROYECTS..
 - 📫 How to reach me ....
 - 😄 Pronouns: ...
